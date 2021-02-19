@@ -1,1 +1,1 @@
-ktury
+który
